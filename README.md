@@ -1,0 +1,1 @@
+# Palitcard-GeForce-GTX-1660-Ti-6-GB-GDDR6ro
